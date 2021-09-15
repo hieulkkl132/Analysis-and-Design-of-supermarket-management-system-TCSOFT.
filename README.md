@@ -1,0 +1,1 @@
+# Analysis-and-Design-of-supermarket-management-system-TCSOFT.
